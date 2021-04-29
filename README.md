@@ -1,6 +1,6 @@
 SAURON TOKEN LAUNCH 
 
-🚀🚀$SAURON PROTOCOL is a hyper deflationary token
+🚀🚀$SAURON PROTOCOL is a hyper deflationary token  
 🎁 3% reflection for all $SRNX Token Holders
 🎁 An attractive 3% total supply burn on each transaction. 
 
